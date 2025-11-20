@@ -1,5 +1,11 @@
 # Art and Drawing Tutorials
 
+## [Drawing of the Sun](https://www.pinterest.com/pin/283234264042010677)
+
+[Archived Link](#)
+
+A drawing of the Sun
+
 ## [How to Draw a Cat](https://www.toadhollowstudio.com/wp_blog/draw-cat-step/)
 
 [Archived Link](http://web.archive.org/web/20240624174628/https://www.toadhollowstudio.com/wp_blog/draw-cat-step/)
