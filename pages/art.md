@@ -12,12 +12,6 @@ A small visual tutorial on how to draw a cat.
 
 A small visual tutorial on how to draw a rat.
 
-## [Jesus Christ Painting](https://www.facebook.com/groups/2718187445114078/posts/3843731329226345)
-
-[Archived Link](#)
-
-A painting of Jesus Christ
-
 ## [Mona Lisa Wikipedia](https://en.wikipedia.org/wiki/Mona_Lisa)
 
 [Archived Link](https://web.archive.org/web/20240804032632/https://en.wikipedia.org/wiki/Mona_Lisa)
